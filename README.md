@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Kunalsahu07
 - 👀 I’m interested in coding and excited to learn about new technologies...
-- 🌱 I’m currently learning in college BCA 2nd Year...
+- 🌱 I’m currently learning in college MCA 1st Semester 
 
 
 
