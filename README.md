@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Kunalsahu07
 - 👀 I’m interested in coding and excited to learn about new technologies...
-- 🌱 I’m currently learning in college MCA 1st Semester 
+- 🌱 Currently I'm a student MCA 2nd Semester at PRSU Raipur.
 
 
 
